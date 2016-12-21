@@ -21,6 +21,10 @@ Avalon weekend tlunch (Ultra Shady)
 Tacos el galito la cienaga and Venice nights
 Also Westwood/Santa Monica and Venice/La brea (opposite Leos) Not great, but a standby
  
+Zamora Bothers
+Boyle Heights on Pennsylvania
+Great nachos
+
 Tacos tamix pico and westmoreland
 Another Al Pastor Place. Hours Unconfirmed
  
