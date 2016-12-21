@@ -54,6 +54,10 @@ Best Items: Cesina (Dried Beef), Picaditas, Alhambres (Mixed stuff), Battleship 
  
 Tacos el galuzo
 All night
+
+La Chuperia
+Lincoln Hights, is a bar. 
+
 Whittier bl at hoefner
 Cabeza (Head)
  
