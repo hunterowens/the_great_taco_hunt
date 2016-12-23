@@ -19,10 +19,12 @@ Tacos Cuernavaca | 5511 Whittier Blvd.<br />East LA | 8pm-4am Mon-Sun | truck | 
 Tacos El Galuzo | 5555 Whittier Blvd.<br />East LA | 5pm-12am Sun-Thu<br />5pm-1:30am Fri-Sat | truck | cabeza |
 La Chuperia | 1145 N. Mission Rd.<br />Lincoln Heights | 12pm-12am Sun-Mon<br />12pm-1:45am Wed-Sat | bar | |
 Mariscos Jalisco | 3040 E. Olympic Blvd<br />Boyle Heights | 9am-5:30pm Mon-Sun | truck | shrimp and seafood tacos and tostadas, second location |
+El Taquito Mexicano | 510 S. Fair Oaks Ave.<br />Pasadena | 6pm-12:30am Mon-Thu<br />6pm-2:45am Fri-Sat<br />5pm-12:30am Sun | truck | great lengua and cabeza tacos |
+Chicas Tacos | 728 S. Olive St.<br />DTLA | 10:30am-10:30pm Mon-Thu<br />10:30am-1:30am Fri<br />10:30am-3pm Sat | restaurant | fish taco topped with Caesar salad |
+Sonoratown | 208 E. 8th St.<br />DTLA | 11am-4pm Tue-Sat | restaurant | great flour tortillas, serves chimichangas |
 
-Confirm existence:
+Confirm info:
 * El Kamazutra Tortas near melrose and north Vermont Friday-sat 7pm 2 am also mon-sat lunch
 Tordas de District Federal 
 * Tacos el galito la cienaga and Venice nights
 Also Westwood/Santa Monica and Venice/La brea (opposite Leos) Not great, but a standby
-
