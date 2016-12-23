@@ -1,36 +1,22 @@
- 
-Mexicali 1st and beaudry downtown Wed-Sat 8pm-1am 
-Pollo Vampiro, Carne Asada anything
- 
-Leos Al pastor Venice and La brea (7pm-9pm)
-Al Pastor
- 
-Rickys fish tacos hauser and sunset (thurs-sun only) Lunch
-Fish Tacos and Shrip Tacos
- 
-La oaxaquena Venice and rose
-(8pm-2am)
-Carne Asada, Tyaludas
- 
-El kumazutra tortAs near melrose and north Vermont Friday-sat 7pm 2 am also mon-sat lunch
-Tordas de District Federal 
- 
-Tacos los guichos  (carnitas) and
-Avalon weekend tlunch (Ultra Shady)
- 
-Tacos el galito la cienaga and Venice nights
-Also Westwood/Santa Monica and Venice/La brea (opposite Leos) Not great, but a standby
- 
-Zamora Bothers
-Boyle Heights on Pennsylvania
-Great nachos
+Name | Address | Hours | Type | Food |
+-----|---------|-------|------|------|
+Mexicali | 702 N. Figueroa St.<br />Chinatown | 11am-10pm Mon-Sat | restaurant | pollo vampiro, carne asada anything |
+Leo's Tacos Truck | 1515 S. La Brea Ave.<br />Mid-City | 9:30am-3am Sun-Thu<br />9:30am-4am Fri-Sat | truck | al pastor |
+Rickys Fish Tacos | 1400 N. Virgil Ave.<br />East Hollywood | 12pm-4pm Wed-Fri<br />11am-5pm Sat<br />11:30am-5pm Sun | truck | fish tacos, shrimp tacos |
+La Oaxaqueña | Lincoln Blvd & Rose St.<br />Venice | 6pm-2am Mon-Sun | truck | carne asada, tlayudas |
+Tacos Los Guichos | Olive & Slauson<br />South LA | 8am-12pm Sun-Thu<br />8am-3am Fri-Sat | truck | carnitas |
+Zamora Brothers | 1503 E. Cesar Chavez Ave.<br />Boyle Heights | 7am-8pm Mon-Sun | restaurant | great nachos |
+Tacos Tamix | 2402 W. Pico Blvd.<br />Pico-Union | 6pm-1am Sun-Thu<br />6pm-2am Fri-Sat | truck | al pastor |
+La Isla Bonita | 400 Rose Ave.<br />Venice | 11am-8pm Mon-Wed, Fri-Sat<br />11am-7pm Sun | truck | shrimp tacos |
 
-Tacos tamix pico and westmoreland
-Another Al Pastor Place. Hours Unconfirmed
- 
-La isla Bonita rose west of 4th
-Shirmp Tacos
- 
+
+Confirm existence:
+* El Kamazutra Tortas near melrose and north Vermont Friday-sat 7pm 2 am also mon-sat lunch
+Tordas de District Federal 
+* Tacos el galito la cienaga and Venice nights
+Also Westwood/Santa Monica and Venice/La brea (opposite Leos) Not great, but a standby
+
+
 Guisados 2100 e cesar chavez ave storefront
 Best Stew Tacos anywhere. Taco Sampler Plate
  
